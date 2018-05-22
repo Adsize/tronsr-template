@@ -1,1 +1,1 @@
-Describe the plan to support the community
+Кстати - ВСЕМ БОБРА!
